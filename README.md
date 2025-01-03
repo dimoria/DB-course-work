@@ -1,5 +1,5 @@
 # Виконала
-Telegram: [@innadenysiuk](https://t.me/innadenysiuk)\
+Telegram: [@dimor1a](https://t.me/dimor1a)\
 *студент(-ка) 2-го курсу, групи  IM-34* **Дубенок Діана Дмитрівна**\
 
 # Керівник
