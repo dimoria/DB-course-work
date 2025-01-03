@@ -1,6 +1,6 @@
 # Виконала
 *студент(-ка) 2-го курсу, групи  IM-34* **Дубенок Діана Дмитрівна**\
-Telegram: [@dimor1a](https://t.me/dimor1a)\
+Telegram: [@dimor1a](https://t.me/dimor1a)
 
 
 # Керівник
